@@ -1,2 +1,0 @@
-# BB.github.io
-CV
